@@ -10,3 +10,8 @@ me too
 I hope that everything will become easier.
 
 Sharing an interesting website: https://www.predictit.org/
+
+
+
+
+Looking forward to Thanksgiving! :D
