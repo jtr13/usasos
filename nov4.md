@@ -14,3 +14,5 @@ Sharing an interesting website: https://www.predictit.org/
 Looking forward to Thanksgiving! :D
 
 The election is still going on.
+
+Finally we got the result of the election!
